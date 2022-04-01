@@ -25,6 +25,9 @@ ___
 ![](https://user-images.githubusercontent.com/102718462/161005885-efda580e-28a8-42a5-adf7-021a8fe41698.jpg)
 
 
+# [Tekkito Remake Koi Edit.osk](https://drive.google.com/file/d/1MXrZk14cPGQgDK2swTjF0FdFRKHJBmrV/view)
+![](https://user-images.githubusercontent.com/102718462/161209453-1979b84d-119c-4e83-ac01-e74f924f9670.jpg)
+
 ___
 # - - Old Skins - -
 
@@ -39,6 +42,18 @@ this skin has followpoints lol
 
 # [osu!default plus](https://drive.google.com/file/d/1VGoNKywfDEK-xgQ_wgl4d0aLNU38GgUU/view)
 ![](https://user-images.githubusercontent.com/102718462/161004480-616791d1-b34d-44f5-b103-938a31006041.jpg)
+
+
+# [MonkoEdit](https://www.mediafire.com/file/xthnviquoptb313/MonkoEdit.osk/file)
+![](https://user-images.githubusercontent.com/102718462/161209581-74fc7248-98f4-4f59-a934-416c13d24702.jpg)
+
+
+# [Aristia(Edit) + mReKk.osk (boop hp and curved reverse)](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
+![](https://user-images.githubusercontent.com/102718462/161209251-9c07bfb7-e1ce-4dbf-8986-c3ad01b24772.jpg)
+
+
+# [Bacon boi 1.0 『blue』](https://www.mediafire.com/file/4hwyxuav1j1imen/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258Eblue%25E3%2580%258F.osk/file)
+![](https://user-images.githubusercontent.com/102718462/161210051-c2e3cd08-89ce-4265-95e1-f7bc8cf7099d.jpg)
 
 
 # will add more skins so please wait
