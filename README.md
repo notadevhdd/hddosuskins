@@ -25,8 +25,6 @@ ___
 ![](https://user-images.githubusercontent.com/102718462/161005885-efda580e-28a8-42a5-adf7-021a8fe41698.jpg)
 
 
-# [Tekkito Remake Koi Edit.osk](https://drive.google.com/file/d/1MXrZk14cPGQgDK2swTjF0FdFRKHJBmrV/view)
-![](https://user-images.githubusercontent.com/102718462/161209453-1979b84d-119c-4e83-ac01-e74f924f9670.jpg)
 
 ___
 # - - Old Skins - -
