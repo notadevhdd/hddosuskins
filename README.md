@@ -20,6 +20,11 @@ ___
 # [hddDT](https://www.mediafire.com/file/mvoep1yr2xd1tr4/hddDT.osk/file)
 ![](https://user-images.githubusercontent.com/102718462/163700990-2c89d533-e3b3-4c19-bfd0-81c083369580.jpg)
 
+# [hddDT v2](https://www.mediafire.com/file/wqs40d3o65js0se/hddDT_v2.osk/file)
+(only changed rpm and reverse)
+![](https://user-images.githubusercontent.com/102718462/163710009-4ea19bad-dd4d-4b3a-aba5-e645842844df.jpg)
+
+
 # [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file)
 ![](https://user-images.githubusercontent.com/102718462/163701139-0a8a676c-147c-42e2-aa2d-b79678af7906.jpg)
 
