@@ -29,6 +29,12 @@ ___
 ![](https://user-images.githubusercontent.com/102718462/163701139-0a8a676c-147c-42e2-aa2d-b79678af7906.jpg)
 
 
+# [《CK》 Bacon boi 1.0 『clrsHDD』](https://www.mediafire.com/file/1gqa4d6lkeeh9nt/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258EclrsHDD%25E3%2580%258F.osk/file)
+![](https://user-images.githubusercontent.com/102718462/163773316-b02f7584-f07c-47e1-a416-fec34bc47801.jpg)
+
+
+
+
 (alot of whitecat skins too lazy to add them in)
 
 <img width="200" alt="Screenshot_89" src="https://user-images.githubusercontent.com/102718462/163701043-87c2676a-3bb2-4afc-be45-c9f2166e792b.png">
