@@ -69,14 +69,12 @@ this skin has followpoints lol
 # [Bacon boi 1.0 『blue』](https://www.mediafire.com/file/4hwyxuav1j1imen/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258Eblue%25E3%2580%258F.osk/file)
 ![](https://user-images.githubusercontent.com/102718462/161210051-c2e3cd08-89ce-4265-95e1-f7bc8cf7099d.jpg)
 
+
+# [OsuHDD Versions](https://www.mediafire.com/folder/izkhrdx6nf2eq/OsuHDD+Versions)
+
+
+
+# [MinimalistH Versions](https://www.mediafire.com/folder/elavyhw4nq5ht/MinimalistH+Versions+(way+worse+than+osuhdd))
+
 # will add more skins so please wait
-
-___
-
-# All Skins (no link + unarranged)
-![](https://user-images.githubusercontent.com/102718462/163700877-70a6f166-505a-428e-9469-82f48c804161.jpg)
-![](https://user-images.githubusercontent.com/102718462/163700879-287403db-26de-427f-bacf-a093af99905f.jpg)
-![](https://user-images.githubusercontent.com/102718462/163700880-95db66c0-e5c7-4434-ab3d-783974e1967f.jpg)
-![](https://user-images.githubusercontent.com/102718462/163700881-2f91d2fa-afee-4ee5-8d63-8ec8529590c8.jpg)
-
 
