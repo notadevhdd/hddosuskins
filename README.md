@@ -4,12 +4,21 @@ ___
 
 everything here is all my current / used skins (not gonna put all because i use a lot of skins)
 
-dm me on discord if you want more skins that i use
-
-HDD#2340
+dm me on discord if you want more skins that i use - HDD#2340
 ___
 
+i know this is only for skins but im gonna add some other stuff 
 
+# Tablet Area (OpenTabletDriver)
+![](https://user-images.githubusercontent.com/102718462/166173053-04df0c04-5d0c-42b5-8170-cc8f114de264.png)
+
+# Twitch (barely go live there)
+https://www.twitch.tv/hddtwitch
+
+# Discord (dead server)
+https://discord.gg/Epfv5SFn5F
+
+___
 
 # - - Main Skins - -
 
