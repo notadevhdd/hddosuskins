@@ -18,6 +18,12 @@ https://www.twitch.tv/hddtwitch
 # Discord (dead server)
 https://discord.gg/Epfv5SFn5F
 
+# Osekai Profile
+https://osekai.net/profiles/?user=26826876&mode=osu
+
+# OsuSkills
+https://osuskills.com/user/hannsdheonosu
+
 ___
 
 # - - Main Skins - -
