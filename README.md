@@ -32,16 +32,12 @@ ___
 ![](https://user-images.githubusercontent.com/102718462/160995659-00239d7a-0c23-44c5-af03-d2a37e7978bf.jpeg)
 
 
-# [hddDT](https://www.mediafire.com/file/mvoep1yr2xd1tr4/hddDT.osk/file)
-![](https://user-images.githubusercontent.com/102718462/163700990-2c89d533-e3b3-4c19-bfd0-81c083369580.jpg)
-
-# [hddDT v2](https://www.mediafire.com/file/wqs40d3o65js0se/hddDT_v2.osk/file)
-(only changed rpm and reverse)
-![](https://user-images.githubusercontent.com/102718462/163710009-4ea19bad-dd4d-4b3a-aba5-e645842844df.jpg)
+# [hddDT v3](https://www.mediafire.com/file/xbkykneu921iob8/hddDT+v3.osk/file)
+![](https://user-images.githubusercontent.com/102718462/167340736-354a43f0-3cc3-4d8b-a58e-f30faa64430e.jpg)
 
 
-# [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file)
-![](https://user-images.githubusercontent.com/102718462/163701139-0a8a676c-147c-42e2-aa2d-b79678af7906.jpg)
+# [« Galactic dimensions BTMC ✩ »](https://www.mediafire.com/file/vzn2qwpnad6tn2m/«+Galactic+dimensions+BTMC+✩+».osk/file)
+![](https://user-images.githubusercontent.com/102718462/167341004-8c705158-0132-4084-bd15-7c5c505f1927.jpg)
 
 
 # [《CK》 Bacon boi 1.0 『clrsHDD』](https://www.mediafire.com/file/1gqa4d6lkeeh9nt/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258EclrsHDD%25E3%2580%258F.osk/file)
@@ -83,6 +79,17 @@ this skin has followpoints lol
 
 # [Bacon boi 1.0 『blue』](https://www.mediafire.com/file/4hwyxuav1j1imen/-_%25E3%2580%258ACK%25E3%2580%258B_Bacon_boi_1.0_%25E3%2580%258Eblue%25E3%2580%258F.osk/file)
 ![](https://user-images.githubusercontent.com/102718462/161210051-c2e3cd08-89ce-4265-95e1-f7bc8cf7099d.jpg)
+
+# [hddDT](https://www.mediafire.com/file/mvoep1yr2xd1tr4/hddDT.osk/file)
+![](https://user-images.githubusercontent.com/102718462/163700990-2c89d533-e3b3-4c19-bfd0-81c083369580.jpg)
+
+# [hddDT v2](https://www.mediafire.com/file/wqs40d3o65js0se/hddDT_v2.osk/file)
+(only changed rpm and reverse)
+![](https://user-images.githubusercontent.com/102718462/163710009-4ea19bad-dd4d-4b3a-aba5-e645842844df.jpg)
+
+
+# [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file)
+![](https://user-images.githubusercontent.com/102718462/163701139-0a8a676c-147c-42e2-aa2d-b79678af7906.jpg)
 
 
 # [OsuHDD Versions](https://www.mediafire.com/folder/izkhrdx6nf2eq/OsuHDD+Versions)
