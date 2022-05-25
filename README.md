@@ -31,9 +31,19 @@ ___
 # [HDD-Mixed](https://www.mediafire.com/file/2fy0e1atodrm0i0/HDD-Mixed.osk/file)
 ![](https://user-images.githubusercontent.com/102718462/160995659-00239d7a-0c23-44c5-af03-d2a37e7978bf.jpeg)
 
+# [- 『BlooMoon』 - {Old v2}](https://www.mediafire.com/file/5h04kemfemcy5dh/-+『BlooMoon』+-+{Old+v2}.osk/file)
+mix of bloomoon redited and bloo v1.1
+![](https://user-images.githubusercontent.com/102718462/170155594-7c8d9148-e711-4937-91e8-8735afd440c3.jpg)
+
+# [vaxei nomod ver. 2](https://joofixd.s-ul.eu/RNQ0X5dB)
+links from vaxei's github skins
+![](https://camo.githubusercontent.com/f6ccd2d69ca62d1736dd15dd3159227c8504e2fbbd6dbd40f23c34ee26b961fe/68747470733a2f2f6f73752e7070792e73682f73732f31343132333538342f66396536)
 
 # [hddDT v3](https://www.mediafire.com/file/xbkykneu921iob8/hddDT+v3.osk/file)
 ![](https://user-images.githubusercontent.com/102718462/167340736-354a43f0-3cc3-4d8b-a58e-f30faa64430e.jpg)
+
+# [tekkito hdd edit](https://www.mediafire.com/file/3rvxa62uaq4k15b/tekkito+hdd+edit.osk/file)
+![](https://user-images.githubusercontent.com/102718462/170156445-4047e6fc-34f4-4095-8f28-361af83895ef.jpg)
 
 
 # [« Galactic dimensions BTMC ✩ »](https://www.mediafire.com/file/vzn2qwpnad6tn2m/«+Galactic+dimensions+BTMC+✩+».osk/file)
