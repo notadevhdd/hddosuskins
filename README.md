@@ -4,7 +4,9 @@ ___
 
 everything here is all my current / used skins (not gonna put all because i use a lot of skins)
 
-dm me on discord if you want more skins that i use - HDD#2340
+my main discord got disabled
+
+dm me on discord if you want more skins that i use - HDDCXXV#7729
 ___
 
 i know this is only for skins but im gonna add some other stuff 
