@@ -6,6 +6,10 @@ everything here is all my current / used skins (not gonna put all because i use 
 
 ___
 
+# THIS IS NOW AN OLD GITHUB. NO MORE UPDATES WILL HAPPEN IN THE FUTURE. A NEW ONE WILL BE CREATED SOON.
+
+___
+
 i know this is only for skins but im gonna add some other stuff 
 
 # Tablet Area (OpenTabletDriver)
